@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things specially about AI. Its impact on marketing.
 - 🌱 I’m currently learning AICE
 - 💞️ I’m looking to collaborate on sharing experiance about AI.
-- 📫 How to reach me 
+- 📫 How to reach me anyone can reach me on my gmail address. yared.ademe2016@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
